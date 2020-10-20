@@ -1,2 +1,0 @@
-# AveryZGutierrrez
-finsihed portfolio
